@@ -7,3 +7,5 @@ Song: [My Queen by Punipunidenki, Mikoneko Homeless, Shun Sakiura](https://www.y
 Ty coco and churro for the compliments :D
 
 I desparately need to rewrite this.
+
+lmao i fucking broke it
