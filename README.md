@@ -8,4 +8,4 @@ Ty coco and churro for the compliments :D
 
 I desparately need to rewrite this.
 
-lmao i fucking broke it
+lmao i broke it
